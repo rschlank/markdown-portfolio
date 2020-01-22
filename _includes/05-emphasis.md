@@ -1,3 +1,3 @@
-**Fishing** *(not **catching**)!*
-Boating
-*Role Playing*
+- **Fishing** *(not **catching**)!*
+- Boating
+- *Role Playing*
